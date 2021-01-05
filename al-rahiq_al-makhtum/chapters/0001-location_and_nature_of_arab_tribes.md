@@ -1,5 +1,6 @@
 Name: Location and Nature of Arab Tribes
 Page Range: 23 -> 31
+
 ---
 
 Not only is it vital context to the life of nabī ﷺ, there is so many wisdoms behind
