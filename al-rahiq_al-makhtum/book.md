@@ -2,7 +2,7 @@
 
 **English Title:**	The Sealed Nectar
 
-
+<br />
 
 **Author:** 	Safi-ur-Rahman Al-Mubarakpuri (as written on book cover)
 
@@ -12,6 +12,6 @@
 
 **ISBN:** 	9789960899558
 
-
+<br />
 
 **Notes:** Revised Edition
