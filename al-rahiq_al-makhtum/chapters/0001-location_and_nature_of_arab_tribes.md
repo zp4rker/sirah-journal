@@ -1,6 +1,6 @@
-Name: Location and Nature of Arab Tribes
+**Name:**	Location and Nature of Arab Tribes
 
-Page Range: 23 -> 31
+**Page Range:**	23 -> 31
 
 ---
 
