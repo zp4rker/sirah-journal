@@ -1,5 +1,7 @@
 <div align="center">
 
+# bismillāh al-raḥmān al-raḥīm
+
 # Sīrah Journal
 
 My personal thoughts on consumption of various sīrah works.
