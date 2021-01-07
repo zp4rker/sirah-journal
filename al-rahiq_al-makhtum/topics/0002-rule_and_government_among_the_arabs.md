@@ -13,3 +13,9 @@ Subḥānallāh! The amount of conflicts and different governments that governed
 I actually did not realise the Persians got this much involved with the Arabs, I thought it was just a little bit of the Byzantines getting involved with some of the northern Arab tribes; however, it does explain the historic first ever victory of the Arabs over the Persians. So both the Byzantines and the Sassanids appointed Arab kings in certain strategic areas i.e at the borders of their Nations.
 
 Interestingly, the authority of Makkah didn't initially go to the tribe of Jurhum but rather Ismā'īl held the authority then after his passing his two sons Nābit then Qīdār (or in the reverse order) **then** their mother's father Muḍāḍ ibn 'Amr al-Jurhumī took over authority of Makkah and it doesn't seem to mention how he took over from Ismā'īl 'alayhi salām's sons since it does not appear that it was after their death.
+
+The 'Adnānīs ruled for around 2000 years then only lost rulership for about 300 years, Allāh knows best but if they had not lost rulership they wouldn't have spread out throughout Arabia so perhaps there was a wisdom for them losing rulership for a short period of time. Also, maaaan Quṣay seems like he would have been a really powerful and influential man.
+
+> Due the the fact that Qusai's deeds were regarded as unquestionable and his orders inviolable, his death gave no rise to conflicts among his sons...
+
+Like subḥānallāh, not only was he powerful and influential but his people must have loved and/or respected him a high regard because *even* after his death they didn't try to undo what he had put in place despite a clear bias towards favouring a specific son.
