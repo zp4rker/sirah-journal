@@ -29,3 +29,23 @@ Replace idol with saint and you get ṣūfiyyah, I don't know if I'm over-exagge
 > 2. Performing pilgrimage to the idols, circulating around them, humiliating themselves and even prostrating before them.
 
 Again, same thing; makes me thing Sufi and Shī'ah.
+
+> ...a female camel that gave birth to ten successive females, but no males.
+
+I don't know if it's true or not, but I feel as though these weird animal traditions they had were invented due to monetary reasons; a she-camel was worth a lot! I also wonder if 'Amr ibn Luḥay practiced this before he discovered idols and if not, why did he only start after introducing idolatry?
+
+> ...were assigned only for use or consumption by males.
+
+Maaan, women really got the short end of the stick in pre-Islāmic Arabian society.
+
+> They would say, "We were delivered rain because of the position of this star."
+
+I believe the ḥadīth mentioned here is this one: https://sunnah.com/bukhari/64/191
+
+> ...at the hand of the King Bukhtanassar.
+
+I swear I've seen "Bukhtanassar" before... Yep! Bukhtanassar invaded Makkah twice it seems, when the tribe of Jurhum would have been in authority over Makkah. This is very very interesting, who was or who were Bukhtanassar and why did they/he cause so much havoc? Perhaps the *Mongolians* of that time?
+
+https://en.wikipedia.org/wiki/Nebuchadnezzar_II
+
+This appears to be the King Bukhtanassar that kicked the Jews out of Palestine. There appears to be about 4 men by that name or title. Bukhtanassar II, III and IV all seem to have one thing in common: they rebelled; perhaps Bukhtanassar was a title then and not actually a name. The Bukhtanassar that invaded Makkah twice was most likely the same Bukhtanassar that caused the Jewish diaspora. Oooh interesting, he also seiged al-Quds (Jerusalem) twice similar to Makkah according to the bible. Also according to the bible, he was the "destroyer of nations." He also assaulted Egpyt (again according to the bible), so perhaps his kingdom really were like the Mongolians of that time.
