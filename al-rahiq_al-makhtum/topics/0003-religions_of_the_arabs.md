@@ -49,3 +49,5 @@ I swear I've seen "Bukhtanassar" before... Yep! Bukhtanassar invaded Makkah twic
 https://en.wikipedia.org/wiki/Nebuchadnezzar_II
 
 This appears to be the King Bukhtanassar that kicked the Jews out of Palestine. There appears to be about 4 men by that name or title. Bukhtanassar II, III and IV all seem to have one thing in common: they rebelled; perhaps Bukhtanassar was a title then and not actually a name. The Bukhtanassar that invaded Makkah twice was most likely the same Bukhtanassar that caused the Jewish diaspora. Oooh interesting, he also seiged al-Quds (Jerusalem) twice similar to Makkah according to the bible. Also according to the bible, he was the "destroyer of nations." He also assaulted Egpyt (again according to the bible), so perhaps his kingdom really were like the Mongolians of that time.
+
+I wonder if other religions which entered into Arabia got the same opposition as Muḥammad ﷺ did when spreading islām.
