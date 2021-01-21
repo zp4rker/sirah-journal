@@ -30,6 +30,14 @@ I'm curious what Waraqah's final destination will be, since he said he would hav
 
 According to the author al-nabī ﷺ became suicidal multiple times during the period when there was a pause of revelation and that each time he ﷺ tried Jibrīl 'alayhi al-salām would calm him down and remind him that he is a messenger of Allah. I wonder if these narrations are authentic or not because personally they seem kind of contradictory. I see no other reason for al-nabī ﷺ to be depressed except if he thought that he ﷺ was no longer worthy of being a messenger in the eyes of Allāh however according to the author, Jibrīl 'alayhi al-salām kept reminding him that he **was indeed** a messenger of Allāh and this happened multiple times??? I don't see how he al-nabī ﷺ kept trying this **especially** if this period only lasted for a few days.
 
-> The Second: Wha the angel invisibly cast in the Prophet's mind and heart, without being seen.
+> **The Second:** Wha the angel invisibly cast in the Prophet's mind and heart, without being seen.
 
 Hmm, interesting... I'm not sure if it means here that Jibrīl 'alayhi al-salām was invisible to other than al-nabī ﷺ or if he was invisible to al-nabī ﷺ too. I would assume the former because he ﷺ did say that he saw Jibrīl 'alayhi al-salām.
+
+> **The Sixth**: What Allâh Himself revealed to him in heaven, i.e., when he ascended to heaven and received Allâh's Order for Salat (prayer).
+
+> **The Seventh:** Allâh's Words to His Messenger ﷺ at first hand without the mediation of an angel. It was the privilege granted to Moses 'alahi al-salām and clearly attested in the Qur'ân, as it is attested to our Prophet ﷺ in the Surat Al-Isra' (Chapter 17 - The Journey by Night) of the Noble Qur'ân.
+
+At first I thought these stages were exclusive to Muḥammad ﷺ but I now realise it is for prophethood in general.
+
+The controversial eighth stage is quite interesting, I wonder what their source or reasoning for that opinion is.
