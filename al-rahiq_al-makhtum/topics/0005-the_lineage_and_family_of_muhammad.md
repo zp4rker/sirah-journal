@@ -14,9 +14,11 @@ Just for ease of memorisation and reading for now and later, I'm going to transl
 
 Ahh, it was Hāshim who started the bi-yearly Quraysh trade caravans; for some reason I thought it was Quṣay but I guess he can't have all the glory lol. Hmm, Hāshim had 9 children yet the only one we hear of is 'Abd al-Muṭṭalib; I wonder if the descendants of the others survived or not.
 
-> Al-Muttalib saked her to send the boy with him to Makkah, but she refused. He managed to convice her saying: "Your son is going to Makkah to restore his father's authority, and to live in the vicinity of the Sacred House."
+> Al-Muttalib asked her to send the boy with him to Makkah, but she refused. He managed to convince her saying: "Your son is going to Makkah to restore his father's authority, and to live in the vicinity of the Sacred House."
 
 According to this book, the transportation of 'Abd al-Muṭṭalib was a peaceful and mutual arrangement however I've actually heard otherwise: I've heard that al-Muṭṭalib actually had to kidnap 'Abd al-Muṭṭalib in order to bring him to Makkah. I guess I'll probably found more about this when I get into the other works.
+
+Edit: It seems I was wrong about there being a kidnapping and al-Muṭṭalib successfully convinced Salmā to let Shaybah go.
 
 > 'Abdul-Muttalib received the men and invited them to go to his house but Abu Sa'd said: "Not before I meet Nawfal." He found Nawfal sitting with some old men of Quraish in the shade of Al-Ka'bah. Abu Sa'd drew his sword and said: "I swear by Allâh that if you don't restore to my nephew what you have taken, I will kill you with this sword."
 
