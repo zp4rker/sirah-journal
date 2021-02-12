@@ -1,6 +1,6 @@
 **Title:** The Second 'Aqabah Pledge
 
-**Pages:** 98 -> 140
+**Pages:** 189 -> 196
 
 ---
 
