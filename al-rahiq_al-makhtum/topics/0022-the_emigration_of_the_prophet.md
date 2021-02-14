@@ -23,3 +23,22 @@ Subḥānallāh, three days living in a cave... surely it would have been dark a
 Oooh, very interesting... one of the ways they would cool down the milk was with water. It says the middle part of the milk container, I wonder if there was like a little section there for the water to go into and not mix with the milk but still cool the milk.
 
 That's quite interesting, out of all of them the shepherd was the one who wrote the statement. Isn't it strange for a slave to be literate? Or was he not a slave but rather just a worker?
+
+I find it quite interesting that the Muslims had already left with a caravan (likely for trade) before al-nabī ﷺ even reached Madīnah or perhaps they left from Makkah which I still quite find interesting because surely the Quraysh would have tried to stop them.
+
+> So they and their animals came out to pay him the respects due to Prophethood.
+
+I wonder if the animals came out due to the people bringing them out or if it was a miracle and the animals did it of their own free will.
+
+> God came from Teman and the Holy One from mount Faran.
+> - Book of Habakkuk
+
+I gotta look into that!
+
+It's quite interesting that he ﷺ prayed jum'uah in a valley (likely out in the open) as opposed to at masjid qubā- which had left on that very day. Oh this incident is mentioned in Bukhārī, let me find it. Alright, I was unable to find it perhaps I can find it later. (Bukhārī 1/555 & 1/560)
+
+Subḥānallāh, a possible wisdom that just came to my mind with the choosing of the house in which al-nabī ﷺ would stay in by his camel: if al-nabī ﷺ chose himself either from his own will or through Allāh's command then a lot of people would have become jealous and possibly even fights could be caused however Allāh selecting the house through al-nabī's ﷺ camel prevented those hard feelings and Allāh knows best.
+
+It mentions Fāṭimah, Umm Kulthūm and Zaynab raḍiallāhu 'anhunn but what about Ruqayyah raḍiallāhu 'anhā? I assume she was married to 'Uthmān ibn 'Affān raḍiallāhu 'anh by this time and they may have still been in Ḥabashah and Allāh knows best.
+
+Seeing Usāmah ibn Zayd raḍiallāhu 'anh being mentioned confused me because I knew that he was born from Umm Ayman raḍiallāhu 'anhā however I thought that Zayd ibn Ḥārithah raḍiallāhu 'anh only married Umm Ayman *after* divorcing Zaynab bint Jaḥsh raḍiallāhu 'anhā however after researching it seems he actually married Umm Ayman first and hence it made sense for Usāmah ibn Zayd raḍiallāhu 'anh to already be born. During that research, I also found that on the wikipedia page that he raḍiallāhu 'anh was also married to a daughter of Abū Lahab but was divorced likely at the same time and for the same reason.
