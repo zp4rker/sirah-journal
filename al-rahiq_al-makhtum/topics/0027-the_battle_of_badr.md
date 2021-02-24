@@ -35,3 +35,12 @@ According to the map on page 260, there were actually people living in the area 
 > The duel was followed by a few more duels but the Makkans suffered terrible defeats...
 
 I did not know there were multiple duels, I thought there was only one and thought that was the custom but apparently not. Aaaand I accidentally read an extra page, I'll continue from here tomorrow in shā allāh.
+
+> And you (Muḥammad ﷺ) threw not when you did throw but Allāh threw.
+
+Subḥānallāh, what a remarkable āyah.
+
+> These (the dates) are holding me back from Paradise.
+
+I- the- the level of imān... I just...
+
