@@ -44,3 +44,8 @@ Subḥānallāh, what a remarkable āyah.
 
 I- the- the level of imān... I just...
 
+What an interesting incident, with how Muḥammad ﷺ said to 'Umar ibn al-Khaṭṭāb raḍiallāhu 'anh "Is it fair that the face of the Messenger's uncle be struck with sword?"
+
+Wait does that technically mean Umm al-Faḍl raḍiallāhu 'anhā dealt the wound to Abū Lahab which ended up killing him?
+
+I really wonder what the emotions were like for al-nabī ﷺ after Badr; there was the victory from battle, but also the death of his daughter... I can't imagine it would have been easy.
