@@ -49,3 +49,21 @@ What an interesting incident, with how Muḥammad ﷺ said to 'Umar ibn al-Kha�
 Wait does that technically mean Umm al-Faḍl raḍiallāhu 'anhā dealt the wound to Abū Lahab which ended up killing him?
 
 I really wonder what the emotions were like for al-nabī ﷺ after Badr; there was the victory from battle, but also the death of his daughter... I can't imagine it would have been easy.
+
+> They also had a group of wonded pagans who were under the charge of 'Abdullah bin Ka'b 
+
+I find it quite interesting that this group is mentioned separately to the prisoners of war, were these people not considered prisoners of war? What happened with them?
+
+> Zainab, the daughter of the Prophet (ṣ), paid the ransom of her husband Abul-'As with a necklace. The Muslims released her prisoner and returned the necklace as a respect to the Prophet (ṣ), but on condition that Abul-'As would allow Zainab (r) to migrate to Madinah, which he actually did.
+
+How was Zaynab (r) able to pay the ransom if she presumably would have been in Makkah–oh wait, that's a dum question, the same way all the other people in Makkah would have paid the ransoms: by sending it to Madīnah.
+
+Subḥānallāh, the wisdom of al-nabī (ṣ)... deciding not to harm Suhayl ibn 'Amr to prevent any of the Muslims from being harmed in the same way. This reminds me of (what I think is a hadith, but I will say saying just to be on the safe side) when it was said to not curse others mothers lest they do the same to yours and it counts as if you curse your own mother; something along those lines.
+
+I was not aware that Abū Sufyān had a son named 'Amr, this is my first time hearing about him; I wonder if he became a Muslim.
+
+It says that the obligation of fasting in the month of Ramaḍān was prescribed in the same year as the battle of Badr, was it before or after the battle that it was prescribed? I would assume before since it would make sense for it to be prescribed at the start of/before Ramaḍān began.
+
+It's quite beautiful that the first 'Īd al-Fitr was very soon after the great victory at Badr, that would have made that day of 'Īd all the more special as mentioned in the book.
+
+Subḥānallāh, there were three distinct forces opposing the Muslims: the pagans of Makkah, the Jews of Madīnah and the bedouins of Arabia.
