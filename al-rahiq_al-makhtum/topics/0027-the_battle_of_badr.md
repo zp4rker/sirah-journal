@@ -65,5 +65,3 @@ I was not aware that Abū Sufyān had a son named 'Amr, this is my first time he
 It says that the obligation of fasting in the month of Ramaḍān was prescribed in the same year as the battle of Badr, was it before or after the battle that it was prescribed? I would assume before since it would make sense for it to be prescribed at the start of/before Ramaḍān began.
 
 It's quite beautiful that the first 'Īd al-Fitr was very soon after the great victory at Badr, that would have made that day of 'Īd all the more special as mentioned in the book.
-
-Subḥānallāh, there were three distinct forces opposing the Muslims: the pagans of Makkah, the Jews of Madīnah and the bedouins of Arabia.

@@ -7,6 +7,7 @@ I'll be creating this glossary to help myself and other know the correct Arabic 
 * **Allāh -** The Most High
 * **Muḥammad ﷺ -** Our beloved nabī ﷺ
 * **'Arab**
+* **'Umayr ibn Wahb al-Jumaḥī (r) -** A ṣaḥābi who set out to kill al-nabī (ṣ) but ended up accepting Islām. He is mentioned on pages 280 and 281
 
 # Places
 
