@@ -4,8 +4,8 @@
 
 ---
 
-Not only is it vital context to the life of al-nabī ﷺ, there are so many wisdoms behind
-Allāh's decision to send al-rasūl ﷺ to the Arabs such as the strategic (in multiple
+Not only is it vital context to the life of al-nabī ṣallallāhu 'alayhi wa sallam, there are so many wisdoms behind
+Allāh's decision to send al-rasūl ṣallallāhu 'alayhi wa sallam to the Arabs such as the strategic (in multiple
 aspects) geographical location of the Arabian Peninsula.
 
 > Linguistically, the word "Arab" means deserts and barren land without water and vegetation. Ever since the dawn of history, this term has been used for the Arabian Peninsula and its people.

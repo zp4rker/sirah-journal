@@ -4,9 +4,9 @@
 
 ---
 
-I heard a story that Muḥammad ﷺ was initially offered and lived in the lower floor of Abū Ayyūb al-Anṣārī's house but after some time they swapped as in Abū Ayyūb al-Anṣārī's family moved to the lower floor and Muḥammad ﷺ and his companions (I believe it was Abū Bakr and Bilāl raḍiallāhu 'anhumā) due to the fact that he and his family raḍiallāhu 'anhum did not feel right being above al-nabī ﷺ. I'm not too sure on the authenticity nor the source of this story. Allāhu a'lam.
+I heard a story that Muḥammad ṣallallāhu 'alayhi wa sallam was initially offered and lived in the lower floor of Abū Ayyūb al-Anṣārī's house but after some time they swapped as in Abū Ayyūb al-Anṣārī's family moved to the lower floor and Muḥammad ṣallallāhu 'alayhi wa sallam and his companions (I believe it was Abū Bakr and Bilāl raḍiallāhu 'anhumā) due to the fact that he and his family raḍiallāhu 'anhum did not feel right being above al-nabī ṣallallāhu 'alayhi wa sallam. I'm not too sure on the authenticity nor the source of this story. Allāhu a'lam.
 
-Did the building of the mosque start the next day or was there a short interlude to allow the muhājirīn including al-nabī ﷺ to recover from the journey?
+Did the building of the mosque start the next day or was there a short interlude to allow the muhājirīn including al-nabī ṣallallāhu 'alayhi wa sallam to recover from the journey?
 
 I wonder what happened to the dug up graves, were there no bodies in there and therefore no need to do anything or did they have to re-bury them elsewhere? I also wonder if the pagans alive at the time opposed the digging up of those graves or not.
 

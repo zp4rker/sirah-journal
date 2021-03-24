@@ -6,7 +6,7 @@
 
 The pagans of Quraysh held ties with 'Abd Allāh ibn Ubay ibn Salūl but what I wonder is who initiated since both parties had benefit from it.
 
-Subḥānallāh, I don't know how I never heard of this incident. The pagans of Madīnah, led by 'Abd Allāh ibn Ubay were prepared to fight (likely with the goal of killing) al-nabī ﷺ. I don't quite understand what al-nabī ﷺ said to them though, did he mean that those pagans were only doing it because they were scared the Quraysh would do something to them?
+Subḥānallāh, I don't know how I never heard of this incident. The pagans of Madīnah, led by 'Abd Allāh ibn Ubay were prepared to fight (likely with the goal of killing) al-nabī ṣallallāhu 'alayhi wa sallam. I don't quite understand what al-nabī ṣallallāhu 'alayhi wa sallam said to them though, did he mean that those pagans were only doing it because they were scared the Quraysh would do something to them?
 
 Subḥānallāh!!! What an amazing ḥadīth and what a beautiful blessing for Sa'd ibn Abī Waqqās raḍiallāhu 'anh.
 
@@ -20,6 +20,6 @@ Subḥānallāh, quite an honour for al-Miqdād raḍiallāhu 'anh: just 1 month
 
 I wonder if Kurz ibn Jabir al-Fihrī is a descendant of Fihr and if so, why is he not called al-Qurashī?
 
-I find it quite interesting that al-nabī ﷺ is appointing someone different each time he goes to do something out of Madīnah and all of them are of a very high level.
+I find it quite interesting that al-nabī ṣallallāhu 'alayhi wa sallam is appointing someone different each time he goes to do something out of Madīnah and all of them are of a very high level.
 
 Interesting, Banū Dumrah is mentioned both i the Invasion of al-Abwa' and in the Invasion of Dhil 'Ushayrah and in both incidents he contracted a treaty though the former mentions a specific man from that tribe whereas the latter does not.

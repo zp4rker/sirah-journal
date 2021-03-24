@@ -4,7 +4,7 @@
 
 ---
 
-Just for ease of memorisation and reading for now and later, I'm going to transliterate the Arabic lineage of al-nabī ﷺ
+Just for ease of memorisation and reading for now and later, I'm going to transliterate the Arabic lineage of al-nabī ṣallallāhu 'alayhi wa sallam
 
 *Part 1:* Muḥammad ibn 'Abd Allāh ibn 'Abd al-Muṭṭalib (Shaybah) ibn Hāshim ('Amr) ibn 'Abd Manāf (al-Mughīrah) ibn Quṣay (Zayd) ibn Kilāb ibn Murrah ibn Ka'b ibn Luay ibn Ghālib ibn Fihr (Quraysh) ibn Mālik ibn al-Naḍr (Qays) ibn Kinānah ibn Khuzaymah ibn Mudrikah ('Āmir) ibn Ilyās ibn Muḍar ibn Nizār ibn Ma'ad ibn 'Adnān.
 
@@ -40,7 +40,7 @@ I wonder if the incident of the elephants is recorded in the history of any othe
 
 This is a very interesting point and something which I have never thought about before. Sure the Christians were misguided from the original truth 'Īsa 'alayhi al-salām came with however they were definitely closer to the truth than the pagans of Makkah; and you could even say that theoretically there could have been Muslims among the so-called Christians at the time.
 
-Subḥānallāh, I did not know that Muḥammad's ﷺ grandmother was named Faṭimah. Also commenting on his ﷺ grandmother, I find it quite interesting that in her lineage we find that her great grandfather was named 'Imrān; 'Imrān is a non-Arab name, at least originally. I wonder if it was used by chance in this case or if the originally non-Arab name somehow made it's way into the Arab culture and I wonder if there are any other examples of this; actually there is Ilyās which is the name of a prophet from banī isrāīl and also one of the forefathers between Muḥammad ﷺ and 'Adnān.
+Subḥānallāh, I did not know that Muḥammad's ṣallallāhu 'alayhi wa sallam grandmother was named Faṭimah. Also commenting on his grandmother, I find it quite interesting that in her lineage we find that her great grandfather was named 'Imrān; 'Imrān is a non-Arab name, at least originally. I wonder if it was used by chance in this case or if the originally non-Arab name somehow made it's way into the Arab culture and I wonder if there are any other examples of this; actually there is Ilyās which is the name of a prophet from banī isrāīl and also one of the forefathers between Muḥammad ṣallallāhu 'alayhi wa sallam and 'Adnān.
 
 > This incident produced a change in the amount of blood money usually accepted in Arabia. It had been ten camels, but after this event it was increased to a hundred.
 
@@ -48,4 +48,4 @@ This is just amazing, I had no idea that 'Abd Allāh had this much of an effect 
 
 > Some others said that his death was two or more months after the Prophet's birth.
 
-I actually did not know that this opinion existed, I thought there was a unanimous consensus that he passed away before the birth of al-nabī ﷺ.
+I actually did not know that this opinion existed, I thought there was a unanimous consensus that he passed away before the birth of al-nabī ṣallallāhu 'alayhi wa sallam.

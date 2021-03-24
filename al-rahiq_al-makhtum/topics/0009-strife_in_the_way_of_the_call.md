@@ -20,4 +20,4 @@ Regarding the topic of the obligation of ṣalawāt prior to the night journey, 
 
 It's quite interesting that Abū Ṭālib approved and encouraged the practice of ṣalāh even though it would have seemed like an innovation for him.
 
-I wonder what the emotions of al-nabī ﷺ and the muslims were when the āyāt ordering for the da'wah to become public were like. Were they excited or scared? The three years of private da'wah seemed to have been a very successful and happy stage so perhaps they were excited to go public after being on a high but Allāh knows best.
+I wonder what the emotions of al-nabī ṣallallāhu 'alayhi wa sallam and the muslims were when the āyāt ordering for the da'wah to become public were like. Were they excited or scared? The three years of private da'wah seemed to have been a very successful and happy stage so perhaps they were excited to go public after being on a high but Allāh knows best.

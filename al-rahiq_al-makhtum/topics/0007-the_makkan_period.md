@@ -18,4 +18,4 @@ Now looking at how the different stages of the Makkan period is split up:
 
 3. External Da'wah
 - Towards the very end of the Makkan period and then through into the Madinan period
-- Just goes to show how badly the muslims were persecuted at the time that *even* the prophet ﷺ had to look outside of Makkah
+- Just goes to show how badly the muslims were persecuted at the time that *even* the prophet ṣallallāhu 'alayhi wa sallam had to look outside of Makkah

@@ -10,13 +10,13 @@ Bismillāh. It's been a while but in shā allāh I'll make this a regular habit 
 
 I wonder if this was meant in general or if it meant that polytheists accompanied the Muslims (from Madīnah) for the pilgrimage. Reading on further, it seems to suggest the latter which is quite interesting that the polytheists were willing to go on pilgrimage *with* the Muslims.
 
-We learn here that even before Islām al-'Abbās raḍiallāhu 'anh would like to accompany and take care of his nephew ﷺ, kind of similar to Abū Ṭālib except for the fact that al-'Abbās raḍiallāhu 'anh actually accepted Islām eventually.
+We learn here that even before Islām al-'Abbās raḍiallāhu 'anh would like to accompany and take care of his nephew, kind of similar to Abū Ṭālib except for the fact that al-'Abbās raḍiallāhu 'anh actually accepted Islām eventually.
 
 Subḥānallāh, they were guaranteed Jannah for fulfilling the articles of the pledge, what a blessed incident to be a part of.
 
 > Prophet ﷺ smiled and replied
 
-Ya rabb, grant me the blessing of seeing your beloved nabi ﷺ smile.
+Ya rabb, grant me the blessing of seeing your beloved nabi ṣallallāhu 'alayhi wa sallam smile.
 
 I find it quite interesting and remarkable that some of the anṣār (to be) made sure to let the rest know that they better be all in or just back out now and yet all of them decided to take the pledge which speaks volumes about their imān and sincerity.
 
@@ -30,7 +30,7 @@ Most of the names from the chosen 12, I simply do not know and I find it quite d
 
 Very very very interesting... jinn tried to cause harm to the da'wah like this.
 
-Ooooh, so apparently the Anṣār had the manpower to take out the Quraysh that early on but with Allāh's wisdom then al-nabī's ﷺ wisdom that route was not taken.
+Ooooh, so apparently the Anṣār had the manpower to take out the Quraysh that early on but with Allāh's wisdom then al-nabī's ṣallallāhu 'alayhi wa sallam wisdom that route was not taken.
 
 Subḥānallāh, there was a wisdom for the polytheists accompanying the Muslims on this pilgrimage. EVEN 'Abd Allāh ibn Ubay ibn Salūl worked in their favour.
 
