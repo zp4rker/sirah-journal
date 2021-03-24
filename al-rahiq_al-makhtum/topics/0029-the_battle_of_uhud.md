@@ -22,6 +22,6 @@ That gets me every time... that is an absolute fortune and absolutely dwarfs the
 
 ![https://cdn.zp4rker.com/nkaam.png](https://cdn.zp4rker.com/nkaam.png)
 
-Mannn, Hind bint 'Utbah (r) sure was a wild one before accepting Islām... how much hatred and enmity must have overcome them to even possibly **think** of digging up the grave of anyone let alone the mother of al-nabī (ṣ).
+Mannn, Hind bint 'Utbah raḍiallāhu 'anh sure was a wild one before accepting Islām... how much hatred and enmity must have overcome them to even possibly **think** of digging up the grave of anyone let alone the mother of al-nabī ṣallallāhu 'alayhi wa sallam.
 
-Subḥānallāh, al-nabī (ṣ) narrated and interpreted his dream in front of the ṣaḥāba to support his opinion of staying in Madīnah instead of going out and yet the some of the ones who missed out on Badr insisted on going out to fight
+Subḥānallāh, al-nabī ṣallallāhu 'alayhi wa sallam narrated and interpreted his dream in front of the ṣaḥāba to support his opinion of staying in Madīnah instead of going out and yet the some of the ones who missed out on Badr insisted on going out to fight
